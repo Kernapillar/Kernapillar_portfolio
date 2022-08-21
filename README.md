@@ -1,1 +1,0 @@
-# Kernapillar_portfolio
